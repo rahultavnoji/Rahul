@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rahul
-- 👀 I’m interested in Almost Everything new
+- 👀 I’m interested in Almost Everything New
 - 📫 How to reach me rahultavnoji6@gmail.com
 
 <!---
